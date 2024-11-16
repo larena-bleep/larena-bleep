@@ -2,7 +2,8 @@
 - 👀 I’m interested in reaching my goal to become a software developer  
 - 🌱 I’m currently still in school and i amjust trying to teach myself at a early age how to code for my career 
 - 💞️ I’m looking to collaborate on any one who would like to work with me as a beginner 
-- 📫 How to reach me  to be one of the best coders 
+- 📫 How to reach by using my email ; reinamothapo@gmail.com
+  
 - 😄 Pronouns: Her/ she 
 - - ⚡ Fun fact:The first programmer was the daughter of a mad poet.
 
